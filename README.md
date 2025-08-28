@@ -1,1 +1,0 @@
-# psygnova.github.io
